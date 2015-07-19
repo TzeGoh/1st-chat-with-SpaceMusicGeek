@@ -12,3 +12,7 @@ Testing 1-2-3 , Hello
 AstroCatulus :
 
 It was nice to meet you SpaceMusicGeek. Please reply to let me know you are alive !!!!
+
+SpaceMusicGeek:
+
+I think I am getting the hang of it. I am staying alive , AstroCat!!!
