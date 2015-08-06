@@ -16,3 +16,9 @@ It was nice to meet you SpaceMusicGeek. Please reply to let me know you are aliv
 SpaceMusicGeek:
 
 I think I am getting the hang of it. I am staying alive , AstroCat!!!
+
+TzeGoh :
+
+Aug_6_2015
+
+Lemme make some admentments to this. I just want to be able to put my code on line !!
